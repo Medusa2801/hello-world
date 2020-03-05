@@ -1,6 +1,4 @@
 # hello-world
-Apenas outro repositório
-
 Oi, mores.
 Aqui quem fala é o Dofono de Obaluaê, filho de Rita de Onirá, filha de Jesonita de Exú.
 Tenho 6 meses de santo e amo minha religião.
